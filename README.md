@@ -1,5 +1,5 @@
 # 📥 DOWNLOAD FILE HERE
-[👉 Click Here to Download  -  The_Gospel_Archive.torrent](https://github.com/harpazo-heartbeat/TGA/raw/main/The_Gospel_Archive.torrent)
+[👉 Click Here to Download - The_Gospel_Archive.torrent](https://github.com/harpazo-heartbeat/TGA/raw/main/The_Gospel_Archive.torrent)
 
 ***
 
