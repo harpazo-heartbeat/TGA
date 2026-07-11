@@ -1,3 +1,8 @@
+# 📥 DOWNLOAD FILE HERE
+[👉 Click Here to Download The_Gospel_Archive.torrent](https://github.com/harpazo-heartbeat/TGA/raw/main/The_Gospel_Archive.torrent)
+
+***
+
 # TGA
 A comprehensive archive dedicated to gospel-centered sermons, music, and biblical resources designed to proclaim freedom in Jesus Christ.
 
